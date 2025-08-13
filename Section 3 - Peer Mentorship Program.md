@@ -1,1 +1,3 @@
+## Vibe Together, Code Together
+
 Starting this September, Tactics will officially roll out its Peer Mentorship Program, scheduled every Friday during the activity period. This program aims to provide academic and technical support to members by pairing experienced mentors with mentees seeking guidance in coursework, projects, and skill development. By fostering a culture of knowledge-sharing, Tactics hopes to strengthen both individual competencies and overall community engagement within the organization.
