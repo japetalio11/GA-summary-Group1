@@ -1,0 +1,1 @@
+Tactics also expressed support and endorsement for fellow CCS organizations such as the AWS Cloud Club and the CS Guild, recognizing their contributions to the college’s tech and academic landscape. These partnerships are expected to open opportunities for co-hosted events, shared learning resources, and stronger representation during college-wide activities.
