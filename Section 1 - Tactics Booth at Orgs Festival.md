@@ -1,1 +1,5 @@
-From September 8 to 10, the campus will come alive with the annual Organizations’ Festival, a vibrant celebration of creativity, community, and collaboration. This year, Tactics will proudly showcase its own booth, strategically located at the Xavier Hall Building. Visitors can look forward to engaging activities, exciting merchandise, and income-generating projects designed to support the organization’s initiatives. It’s not just a booth—it’s an opportunity to connect, have fun, and contribute to meaningful causes.
+## Let's Contribooth!
+
+From September 8 to 10, the campus will come alive with the annual Organizations’ Festival, a vibrant celebration of creativity, community, and collaboration. This year, Tactics will proudly showcase its own booth, strategically located at the Xavier Hall Building. Visitors can look forward to engaging activities, exciting merchandise, and income-generating projects designed to support the organization’s initiatives. 
+
+It’s not just a booth—it’s an opportunity to connect, have fun, and contribute to meaningful causes.
