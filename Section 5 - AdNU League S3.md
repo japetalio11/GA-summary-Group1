@@ -1,3 +1,3 @@
-##COCS Intramurals
+## COCS Intramurals
 
 TACTICS reviewed the previous year's ranking achievements and identified areas for improvement, particularly regarding low student participation. To address these challenges, the organization is implementing new strategies to motivate and involve more students in intramural activities. They have begun encouraging students to start preparing for the intramurals as early as the first semester of AY 2025–2026, aiming to build stronger teams and foster a greater sense of community and school spirit throughout the
